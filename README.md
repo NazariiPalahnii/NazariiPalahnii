@@ -1,2 +1,2 @@
-# NazariiPalahnii
+# Prizrak_幽霊
 
